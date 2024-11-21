@@ -1,0 +1,1 @@
+# sprunki-party-mode
